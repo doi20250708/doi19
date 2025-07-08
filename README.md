@@ -11,4 +11,4 @@
 精选欧美、亚洲与日韩精品片源，专为偏爱多地区风格内容的观众打造。资源覆盖无码中字、粗暴剧情及人妻专区，支持在线播放不卡顿，适用于手机和电脑双端。每日自动更新，内容丰富，满足多元观影需求。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/doi20250708/doi19 ）</span>
